@@ -1,13 +1,11 @@
-Ai Enthusiast to my own detriment
+---
 
+### AI Enthusiast to My Own Detriment
 
-my scattershot of edits and whatnot
+My scattershot of edits and whatnot on this profile **are not** a portfolio.
 
+![Discord Presence](https://lanyard.cnrad.dev/api/175411535357673473)
 
-on this profile are not a portfolio
+But if you've stopped by regardless of that, then enjoy yourself, I suppose.
 
-
-but if you've stopped by regardless
-
-
-of that, then enjoy yourself I suppose.
+---
